@@ -1,4 +1,4 @@
-> Ben uzun süre kapatmayacağım bir sunucuya kurdum çünkü yaklaşık 1-1.5 ay açık kalmalı tahminim.
+> Ben 2 ay kapatmayacağım. Yaklaşık 1-1.5 ay açık kalmalı tahminim.
 
 > Ne kadar erken kurulursa katkıda bulunma sırasının gelmesi de o kadar iyidir. (daha erken yine ameliyatta oldgum ıcın paylasamadım)
 
